@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @addame2
+- 👀 I’m interested in ... coming soon
+- 🌱 I’m currently learning ... coming soon
+- 💞️ I’m looking to collaborate on ... coming soon
+- 📫 How to reach me :) coming soon
